@@ -1,4 +1,4 @@
-# 💡 Hi, I'm [Aniket]  
+# 💡 Hi, I'm Aniket
 
 🎓 **Master's Student | Mechatronics & Robotics** 
 
